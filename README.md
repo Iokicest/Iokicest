@@ -7,7 +7,7 @@
       <td width="400" align="center">
          <img src="https://i.postimg.cc/bvzCqSgQ/186743.gif" width="300">
       
-   ᵒʳ 　　ᑦ꒰՞ ܸ .  ᩙ.𓈒 ܸ ՞𑁬　　trickster　　ㅤຼ ᩧ ݁ ݂  　16　　　　　　
+   ᵒʳ 　　ᑦ꒰՞ ܸ .  ᩙ.𓈒 ܸ ՞𑁬　　trixie　　ㅤຼ ᩧ ݁ ݂  　16　　　　　　
    ᣟ݂ ๑𓏼 ׅ 　 it its　 ͜𓏼˚̣̣̣꒱꒱　　 iwc ﹒ ͜͜ ᣟ݂  @thundiethor　　　　
     .˳˳.⋅ॱ　|͜͝ | ͜ㅤິㅤ @tricksterofasgard　𓏫⑅ osdd sys　　　　
      ceo of lokicest　𝀊　thorki enthusiast　　❤︎᭢˚̣̣̣͙͏
