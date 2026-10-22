@@ -14,6 +14,6 @@
 
 <p align="center">
  <img src="https://img.shields.io/badge/MISCHIEF-97A4AA?style=for-the-badge&labelColor=97A4AA">
- <img src="https://img.shields.io/badge/GODDNESS-FEBFCF?style=for-the-badge&labelColor=CBECB6">
+ <img src="https://img.shields.io/badge/GODDESS-FEBFCF?style=for-the-badge&labelColor=CBECB6">
  <img src="https://img.shields.io/badge/PRINCESS-97A4AA?style=for-the-badge&labelColor=CBECB6">
 </p>
